@@ -1,0 +1,1 @@
+arbon MRV Registry is a technology-driven platform designed to encourage individuals and small NGOs to participate in environmental sustainability through tree plantation and carbon credit generation.
